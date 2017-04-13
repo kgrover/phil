@@ -3,6 +3,7 @@
 
 1. Ethics of Ambiguity
 2. The Second Sex (A little less existentialist in nature, more feminist philosophy; but definitely brings in some very interesting ideas even contrasting Sartre’s work)
+
 **Sartre:**
 
 1. Existentialism is a Humanism 
